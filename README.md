@@ -6,3 +6,5 @@ Hello World, Crazy Dave is coming for you
 
 Ops on making the prostitute Crazy Dave
 
+Crazy Dave is cute?
+
